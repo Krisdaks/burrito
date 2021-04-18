@@ -1,0 +1,1 @@
+Make omlet then start making tortilla on a pan then put cheese then omlet then cheese the guac and fold.
